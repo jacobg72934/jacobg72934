@@ -1,4 +1,9 @@
-### Hi there 👋
+### HI'm jacob. 
+He/him
+Alive(not dead)
+I play video games
+I am immune to flashbangs
+anything that has math
 
 <!--
 **jacobg72934/jacobg72934** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
